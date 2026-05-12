@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Todoist for macOS utility with smart Todoist for macOS Utility | focus mode + cloud backup. Featuring focus mode and cloud backup, it's the best choice for macOS
 
 
 
